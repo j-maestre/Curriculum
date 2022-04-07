@@ -1,1 +1,1 @@
-Check My curriculum [a link](https://maestrequi.neocities.org/)here
+Check My curriculum [here](https://maestrequi.neocities.org/)
